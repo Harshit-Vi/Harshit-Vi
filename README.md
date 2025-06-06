@@ -1,4 +1,4 @@
-![                                                                        ](https://github.com/Harshit-Vi/Harshit-Vi/blob/main/Tulip%F0%9F%A9%B7.jpg)
+![.       .](https://github.com/Harshit-Vi/Harshit-Vi/blob/main/jpg(2))
 # 💫 About Me:
 I am currently studying
 
