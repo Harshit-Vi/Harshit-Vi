@@ -12,7 +12,6 @@ I am currently studying
  ![snake gif](https://github.com/Harshit-Vi/Harshit-Vi/blob/output/github-snake-dark.svg)
 </div>
 
-![Metrics](https://raw.githubusercontent.com/Harshit-Vi/metrics/master/metrics.svg)
 
   
 # 📊𓂃 ࣪˖🐇𝑮𝒊𝒕𝑯𝒖𝒃 𝑺𝒕𝒂𝒕𝒔:
