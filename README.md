@@ -1,6 +1,7 @@
 ![.       .](https://github.com/Harshit-Vi/Harshit-Vi/blob/main/jpg(2))
 # ✿ִֶָ 𓂃 ࣪˖ ִֶָ🐇་༘  𝑨𝒃𝒐𝒖𝒕 𝑴𝒆:
 I am currently studying
+just preparing for exam
 
 
 # 💻 𓂃 ࣪˖ ִֶָ🐇 𝑻𝒆𝒄𝒉 𝑺𝒕𝒂𝒄𝒌:
